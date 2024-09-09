@@ -12,5 +12,5 @@ La finalidad de este cuestionario es dar a conocer y concientizar a las personas
 * Ayudar al crecimiento del sector financiero.
 * Evitar las estafas masivas por el desconocimiento financiero.
 * Sensibilizar acerca de la importancia de las opercaciones financieras.
-* Incemantar la inversion inteligente de capital.
+* Incrementar la inversion inteligente de capital.
 * Fomentar el rendimiento del capital.
